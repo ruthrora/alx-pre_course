@@ -1,1 +1,1 @@
-New journey
+A journey to success
